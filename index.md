@@ -13,6 +13,10 @@ Knocky went over to try his luck jumping over the balefire. He transformed into 
 
 The group went over to Elissa, who, it turns out, was indeed Rohain's sister, and was equally snooty. She indicated that the two had a competition going for control of the freehold, that victory was to be marked by whose flag was flying at the top of the castle at the first stroke of midnight. She offered some chimerical items if the group helped her succeed, and, through Mamadou's negotiating, safe passage through the Dreaming to any freehold they might like if they helped her and she failed.
 
-Mamadou decided to go tell Rohain, while Shawna and Knocky figured, what could possibly go wrong with helping Elissa?
+Mamadou decided to go tell Rohain, while Shawna and Knocky decided that Elissa was the one they should help.
+
+Mamadou spoke to Rohain, who confirmed that it was a competition and that it had to do with the flag, flying at the top of the tallest tower. Rohain's flag was a white flag with, in the top left corner, a blue stick figure with an arm outstretched, grabbing a blue moon. Mamadou had a plan to take the flag down and hide it, but Rohain refused adamantly.
+
+Shawna and Knocky asked how they could help.
 
 ... To be continued.
