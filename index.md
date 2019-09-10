@@ -1,5 +1,5 @@
-# 2019-09-09
-## An intro session to Changeling: The Dreaming
+# [2019-09-09](#2019-09-09)
+## [An intro session to Changeling: The Dreaming](#intro-session-to-changeling)
 
 This session saw Shawna Ravenkind (Seelie Boggan), Mamadou Ibori (Unseelie Eshu), and Knocky McWhosthere (Seelie Pooka), three New York residents and somewhat recent friends, invited to a Beltane festival in Lord Rohain's freehold (or ... One of his freeholds?). Ask Knocky about his amazing diamond-encrusted crocs sometime.
 
